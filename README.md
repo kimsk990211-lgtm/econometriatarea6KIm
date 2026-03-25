@@ -1,0 +1,1 @@
+# econometriatarea6KIm
